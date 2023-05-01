@@ -1,3 +1,3 @@
 # EdithFinance
 
-![Certificate_EDITH Finance (EDH)](https://user-images.githubusercontent.com/81981737/149192518-752ed8b2-642b-4340-a295-5f6f6a665e01.jpg)
+![edithfinance](https://user-images.githubusercontent.com/121312707/235408211-46fd89c3-9193-4823-8c87-b455ad5fb247.png)
